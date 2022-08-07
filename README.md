@@ -1,1 +1,0 @@
-# Istahotel.com
